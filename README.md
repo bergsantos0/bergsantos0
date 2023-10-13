@@ -4,7 +4,7 @@ Me chamo gutemberg
 
 Tenho 21 anos 
 
-sou de pernambuco
+sou de Pernambuco
 
 Estou cursando o curso de front-end do vai na web
 
