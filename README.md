@@ -1,4 +1,4 @@
-### Olá, seja bem vindo ao meu perfil👋
+### Olá, sejam bem vindos ao meu perfil👋
 
 Me chamo gutemberg
 
